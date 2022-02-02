@@ -1,1 +1,1 @@
-New website coming up!
+New recipe website coming up!
